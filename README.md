@@ -12,4 +12,4 @@ This is improving my knowledge and give me more confident to build my career.
 (53.01 M) Total sales.
 sat and sun sales are high comparison other day. 
 
-Karnataka state placed the highest numbers of food orders (5.46 M) .
+Karnataka state has the highest sales(5.46M) .
